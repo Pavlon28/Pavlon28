@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Pavlon28
+- 👀 I’m interested in Tech and Software
+- 🌱 I’m currently learning Software Engeneering
+- 📫 pavel.tapu23@gmail.com
